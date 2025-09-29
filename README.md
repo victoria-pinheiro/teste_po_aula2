@@ -2,8 +2,7 @@
 kwdjiw
 w
 dw
-
-wdw
+quero suco de maraca
 d
 w
 d
