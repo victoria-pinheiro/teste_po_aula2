@@ -2,14 +2,6 @@
 kwdjiw
 w
 dw
-
-wdw
-d
-w
-d
-wd
-wdw
-d
-w
+quero suco de maraca
 d
 w
