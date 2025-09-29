@@ -8,8 +8,7 @@ d
 w
 d
 wd
-wdw
+
 d
 w
-d
-w
+coca zero
